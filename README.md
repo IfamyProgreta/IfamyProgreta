@@ -1,6 +1,6 @@
 ✨ **Ifamy Progreta - Teman Andalan Perubahan Digital** ✨
 
-Kami adalah mitra andal bagi 🎓 mahasiswa yang ingin sukses dalam tugas dan skripsi, serta bagi para pelaku 🏢 UMKM yang ingin membawa bisnis mereka ke ranah digital. Di Ifamy Progreta, kami memahami bahwa setiap langkah dalam perjalanan digital memiliki tantangan tersendiri, dan kami hadir untuk mempermudah proses tersebut. 
+Kami adalah mitra andal bagi 🎓 mahasiswa yang ingin sukses dalam tugas, serta bagi para pelaku 🏢 UMKM yang ingin membawa bisnis mereka ke ranah digital. Di Ifamy Progreta, kami memahami bahwa setiap langkah dalam perjalanan digital memiliki tantangan tersendiri, dan kami hadir untuk mempermudah proses tersebut. 
 
 Untuk mahasiswa 🎓, kami menyediakan dukungan teknologi untuk menyelesaikan proyek akademik hingga skripsi, dengan solusi aplikasi dan pengembangan data yang dapat meningkatkan kualitas hasil kerja Anda. Kami mengerti bahwa tugas akhir bisa terasa berat, tetapi dengan alat yang tepat, prosesnya dapat lebih lancar dan terarah.
 
